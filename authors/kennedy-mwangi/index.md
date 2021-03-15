@@ -1,0 +1,1 @@
+I am tech content creator. I specialize in simplifying complex concepts in to easier and understable concepts for software developers.

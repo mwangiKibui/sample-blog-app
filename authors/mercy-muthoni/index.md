@@ -1,0 +1,1 @@
+I specialize in developing tech content which is of meaning to software developers more so in Kenya.
